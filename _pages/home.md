@@ -6,5 +6,6 @@ permalink:  /
 # Hello, chickTech
 
 Nae's hair journy
+why did i go natural???
 
-Hey my name is janey but you can call me nae I am 15 years old and i attend Athens Drive High School
+
